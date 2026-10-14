@@ -1,1 +1,1 @@
-# A05-JayadityaBhattacharya
+# A05-Jayaditya Bhattacharya
